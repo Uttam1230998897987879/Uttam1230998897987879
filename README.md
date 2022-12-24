@@ -2,7 +2,10 @@
 - 👀 I’m interested in cording competition ....... 
 - 🌱 I’m currently learning rama unversity kanpur
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 📫 How to reach me  To connect the Email.
+- newtonbaba328@gmail.com 
+- 8967897752
+- 
 
 <!---
 Uttam1230998897987879/Uttam1230998897987879 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
